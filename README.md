@@ -1,0 +1,1 @@
+Gold and Silver rates http://price.goldnp.com
